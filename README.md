@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **edwinjoel1204@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zBQjkEy1SNrMJZBsBppwnbJ4LYXV6ERK/view?usp=sharing](https://drive.google.com/file/d/1zBQjkEy1SNrMJZBsBppwnbJ4LYXV6ERK/view?usp=sharing)
+- 📄 Know about my experiences [Download Resume](https://drive.google.com/file/d/1zBQjkEy1SNrMJZBsBppwnbJ4LYXV6ERK/view?usp=sharing)
 
 - ⚡ Fun fact **I am addicted to Music 😜**
 

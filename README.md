@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Cloud Technology**
 
-- 👨‍💻 All of my projects are available at [https://ej1202portfolio.netlify.app/](https://ej1202portfolio.netlify.app/)
+- 👨‍💻 All of my projects are available at [Portfolio](https://ej1202portfolio.netlify.app/)
 
 - 💬 Ask me about **Java, Springboot**
 
